@@ -1,1 +1,1 @@
-# educationpatriotique.io-
+# educationpatriotique.io
